@@ -1,1 +1,1 @@
-# rsschool-cv
+# https://Ramzes010.github.io/rsschool-cv/cv
